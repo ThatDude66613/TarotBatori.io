@@ -1,0 +1,2 @@
+# TarotBatori.io
+tarot batori
